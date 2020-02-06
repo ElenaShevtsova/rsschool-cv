@@ -4,3 +4,5 @@
 4. HTML, CSS, JS
 5. I don't have code examples.
 6. I don't have any experience.
+7. Belarus State Economic University, specialty: Finance and Credit, IT-Academy.
+8. I watch English movies, read books. Practically Speaking Conversational English Course Presented by Practically Speaking English Fort Worth, Texas, USA.
